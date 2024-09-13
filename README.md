@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @stormeso
-- 👀 I’m interested in dance
+- 👀 I’m interested in LEARN
 - 😄 Pronouns: she|her
 - ⚡ Fun fact: i´m obsesed for cars 
 
